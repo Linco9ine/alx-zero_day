@@ -1,1 +1,1 @@
- Nothing is impossible!
+nothing is impossible
